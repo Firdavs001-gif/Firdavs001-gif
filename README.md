@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Firdavs001-gif
 - 👀 I’m interested in Football
 - 🌱 I’m currently learning IT
-- 💞️ I’m looking to collaborate on noone
+- 💞️ I’m looking to collaborate on Fifa mobile
 - 📫 How to reach me Idk
 - 😄 Pronouns: Man
 - ⚡ Fun fact: I'm from Uzbekistan
